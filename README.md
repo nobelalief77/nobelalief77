@@ -134,7 +134,7 @@ I'm continuously learning through hands-on projects and experimenting with new A
 
 ## 📫 Connect With Me
 
-* 💼 LinkedIn: [Nobel Alief](linkedin.com/in/nobel-alief-97a519307/)
+* 💼 LinkedIn: [Nobel Alief](https://www.linkedin.com/in/nobel-alief-97a519307)
 * 📧 Email: *[nobelalief77@gmail.com](mailto:nobelalief77@gmail.com)*
 
 ---
